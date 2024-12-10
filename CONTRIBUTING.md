@@ -1,2 +1,0 @@
-# Jarrod
-# Victor Devlin
